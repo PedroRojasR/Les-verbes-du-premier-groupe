@@ -76,15 +76,15 @@ https://create.kahoot.it/share/verbes-du-1er-groupe/ceca49e1-098d-4d89-b8ed-97a6
 
 -Trouver / Encontrar
 
--Sauver Salvar
+-Sauver / Salvar
 
--Crier / 
+-Crier / Llorar, aullar
 
 -Décider / Decidir
 
 -Jeter / Tirar
 
--Élever /
+-Élever / Elevar, aumentar, incrementar, levantar
 
 -Posséder / Poseer
 
